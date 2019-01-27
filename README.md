@@ -1,6 +1,6 @@
 # Hi I'm Jelly :)
 
-I'm a year 5 Creative and Professional Writing student. My biggest wish is my stories can make the world a little bit different.
+I'm a year 5 Creative and Professional Writing student. My biggest wish is that my stories can make the world a little bit different.
 
 My favourite activities:
 * Reading
