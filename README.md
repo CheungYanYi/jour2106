@@ -1,18 +1,33 @@
-# Hi I'm Jelly :)
+# Who am I?
 
-I'm a year 5 Creative and Professional Writing student. My biggest wish is that my stories can make the world a little bit different.
+* Name: Yan Yi (you can call me Jelly)
+* Year: 5
+* Major: Creative & Professional Writing （and yes, I know nothing about coding😢）
+* My favourite activities:
+  - Reading
+  - Reading
+  - Reading
 
-My favourite activities:
-* Reading
-* Reading
-* Reading
+Strengths|Weaknesses
+---------|----------
+Writing stories|Writing reports
+Making jokes|Making websites
+Communication|Procrastination
 
-## I love comics of Snoopy
 
-### https://www.youtube.com/watch?v=pVUh1wJTCug
+## Why am I here?
 
-## heading 2
+*jour2106*  is **the only** course I am taking in the last semester in this University. Already fulfilled all the graduation requirements, I still find myself not well-equipped for media industry. Therefore, I want to expose myself in a completely new field.
 
-Here is my photo(I'm cute):
+### What topic am I interested in
 
-![](https://pbs.twimg.com/profile_images/3509153822/c75e668eb13d39b154c196510462f5d2_400x400.jpeg)
+**ANY topics about Society Issues** (which is a lot...)
+
+#### To know me better...
+
+*Most of my achievements can be found in my [personal webiste](https://14220741.wixsite.com/mysite), which is simply made by Wix. You can also find a few photos taken by me there, hope you'll like it❤️*
+
+
+##### Here is my photo(Do you think I'm cute?):
+
+![](http://8.pic.9ht.com/thumb/up/2018-7/20187418254097190_600_566.jpg)
